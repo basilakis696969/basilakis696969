@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @basilakis696969
+- 👀 I’m interested in ML
+- 🌱 I’m currently learning NOTHING
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me you dont
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: 1+1=2
